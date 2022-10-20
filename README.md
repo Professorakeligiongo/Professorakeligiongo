@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Professorakeligiongo
-- I am a professor of art, philosophy and pedagogue.
+- I am a professora of art, philosophy and pedagogue.
 - 👀 I’m interested in teach the little I know and learn a lot from you.
 - 📫 How to reach me:
 - instagram keligiongo
